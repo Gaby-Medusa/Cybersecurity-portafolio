@@ -56,4 +56,4 @@ Contact
 
 LinkedIn: https://www.linkedin.com/in/ximaray-pérez-785a1018b?utm_source=share_via&utm_content=profile&utm_medium=member_ios
 
-Email: perezguzmanchile@fnail.com
+Email: perezguzmanchile@gmail.com
